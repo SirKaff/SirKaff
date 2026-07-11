@@ -1,3 +1,3 @@
 Hi there!
 
-contact me at [WhatsApp.](https://kua.lat/NFYwT)
+Contact me at [WhatsApp.](https://kua.lat/NFYwT)
